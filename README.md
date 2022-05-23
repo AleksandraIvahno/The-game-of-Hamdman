@@ -1,1 +1,1 @@
-# The-game-of-Hamdman
+# The-game-of-Handman
